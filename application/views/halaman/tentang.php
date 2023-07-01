@@ -1,0 +1,1 @@
+Website berita merupakan kanal penyedia informasi seputar pendidikan dan teknologi.
